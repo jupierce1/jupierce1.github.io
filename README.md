@@ -1,1 +1,0 @@
-# jupierce1.github.io
